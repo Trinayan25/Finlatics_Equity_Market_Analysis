@@ -1,0 +1,1 @@
+# Finlatics_Equity_Market_Analysis
